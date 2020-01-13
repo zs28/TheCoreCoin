@@ -1,0 +1,2 @@
+# TheCoreCoin
+TheCoreCoin
